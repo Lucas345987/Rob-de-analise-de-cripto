@@ -1,0 +1,1 @@
+# Rob-de-analise-de-cripto
